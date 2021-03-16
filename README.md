@@ -1,0 +1,1 @@
+# syte_oktyabrski_okrestnosti
